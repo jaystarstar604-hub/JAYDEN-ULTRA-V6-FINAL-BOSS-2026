@@ -1,0 +1,2 @@
+# JAYDEN-ULTRA-V6-FINAL-BOSS-2026
+💀 ULTRA FAST 0.3s - 0ms PING - 420+ COMMANDS - FINAL BOSS - Most powerful WhatsApp bot in TZ 2026
